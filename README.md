@@ -1,6 +1,6 @@
 ## Olá! Eu sou a Beatriz!
 
-👩🏻‍💻 Estou cursando o 5º semestre de Análise e Desenvolvimento de Sistemas na Fatec Taquaritinga
+👩🏻‍💻 Estou cursando o 6º semestre de Análise e Desenvolvimento de Sistemas na Fatec Taquaritinga
 
 🚀 Assistant Developer na Programmers - Beyond IT
 
